@@ -1,0 +1,18 @@
+completed youtube video:
+http://youtube....
+
+completed book:
+http://book
+
+did project:
+.....
+
+did something else
+...
+
+was active in slack:
+http://slack post URL1
+http://slack post URL2
+
+Submitter:
+18301053 Name Lamia Tasnova
